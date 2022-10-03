@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @CassandraLct
+- 👋 Hi, I’m @clecat
 - 👀 I’m interested in Animation 2D/3D and Gamedesign
 - 🌱 I’m currently a 42Nice student
 - 💞️ I’m looking to collaborate on every project so i can learn as much as i can
