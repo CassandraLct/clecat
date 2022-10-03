@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @CassandraLct
 - 👀 I’m interested in Animation 2D/3D and Gamedesign
-- 🌱 I’m currently in 42's Nice pool
+- 🌱 I’m currently a 42Nice student
 - 💞️ I’m looking to collaborate on every project so i can learn as much as i can
 - 📫 You can reach me on LinkedIn or Discord 
 
